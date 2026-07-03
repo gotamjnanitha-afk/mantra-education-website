@@ -49,6 +49,7 @@ GitHub Link:
 
 👨‍🎓 Developed By
 
-Your Name
+Jnanitha gotam
+
 
 MANTRA 2026 Summer School Assignment 
